@@ -2,4 +2,4 @@
 - 👀 I’m interested in Data Analysis
 - 🌱 I’m currently seeking a remote job for Data Analyst/Business Analyst position.
 - 📫 Reach me on my personal website - https://itzahmedsalman.github.io/Portfolio_Salman_Ahmed.github.io/
-- ⚡ Fun fact: All the above information is 100% true😀
+- ⚡ Fun fact: All the above information is badly true😀
